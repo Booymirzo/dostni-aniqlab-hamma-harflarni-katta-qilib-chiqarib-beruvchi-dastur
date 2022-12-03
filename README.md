@@ -1,0 +1,1 @@
+# dostni-aniqlab-hamma-harflarni-katta-qilib-chiqarib-beruvchi-dastur
